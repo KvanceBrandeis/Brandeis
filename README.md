@@ -1,1 +1,1 @@
-# Brandeis
+# BrandeisUni
